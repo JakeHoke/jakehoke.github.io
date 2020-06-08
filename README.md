@@ -1,2 +1,2 @@
-# deadly.github.io
-upcoming esports club thats being developed
+# jakehoke.github.io
+If you see this... rip in the chat.
